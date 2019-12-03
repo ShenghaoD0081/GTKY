@@ -6,9 +6,9 @@
 
 - I was born in June 29, 2004
 
-- My favorite color is Red
+- My favorite color is Red Bean Red 
 
-- My favorite 3 artist are Yunomi, Kenshi Yonezu, and DAOKO
+- My favorite 3 artist are Yunomi, Kenshi Yonezu, and DAOKO and my mom
 
-- On the weekends I like to play games
+- On the weekends I like to play games and eat food and not sleep
 
