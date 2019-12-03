@@ -8,7 +8,7 @@
 
 - My favorite color is Red Bean Red 
 
-- My favorite 3 artist are Yunomi, Kenshi Yonezu, and DAOKO and my mom
+- My favorite 3 artist are Yunomi, Kenshi Yonezu, and DAOKO
 
 - On the weekends I like to play games and eat food and not sleep
 
