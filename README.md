@@ -1,12 +1,14 @@
-My name is ...
+# About Me
 
-I'm ... years old.
+- My name is Shenghao Dong
 
-I was born in ....
+- I'm 15 years old.
 
-My favorite color is ...
+- I was born in June 29, 2004
 
-My favorite 3 artist are ...
+- My favorite color is Red
 
-On the weekends I like to ...
+- My favorite 3 artist are Yunomi, Kenshi Yonezu, and DAOKO
+
+- On the weekends I like to play games
 
